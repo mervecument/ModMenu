@@ -18,4 +18,4 @@
 #
 [![https://bit.ly/modmenual](https://bit.ly/48AJtsS)](https://bit.ly/modmenual)
 
-[![https://whos.amung.us/widget/aniyosw.png?11](https://whos.amung.us/widget/aniyosw.png)](https://whos.amung.us/widget/aniyosw.png)
+[![https://whos.amung.us/widget/hedefkimtayffun.png?50](https://whos.amung.us/widget/hedefkimtayffun.png)](https://whos.amung.us/widget/hedefkimtayffun.png)
